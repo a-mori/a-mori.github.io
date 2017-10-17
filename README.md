@@ -1,0 +1,1 @@
+# a-mori.github.io
